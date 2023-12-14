@@ -1,2 +1,2 @@
 # AGCCI-Copilot
-My first repository
+My AGCCI CODING CAMP WAS AMAZING
